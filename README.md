@@ -1,17 +1,14 @@
-# 优信云youxincloud官网地址 + 最新优惠码
+# 优信云youxincloud官网地址 + youxinyun最新优惠码
 
 永久官网：[优信云.com](https://youxincloud.org/register)
 
 备用地址：[youxincloud.net](https://www.youxincloud.net/#/register?code=LuVhRkz4)
 
-> 优信云跑路了吗？暂时没有。不过机场总会有跑路风险，为尽可能减少损失，选购套餐可按月支付。
-> 另外没有啥绝对好坏，一线机场也会炸，小机场也可能岁月静好。
-
-[![优信云官网](youxincloud_20250218_203729.png)](https://xuv.cc/out/youxin)
+[![优信云youxinyun官网](youxincloud_20250218_203729.png)](https://xuv.cc/out/youxin)
 
 ## 优信云youxincloud介绍
 
-youxincloud 使用安全高速 Trojan 协议，是老牌机场旗下新开高速专线机场，低价提供高速IPLC线路节点的科学上网加速器。节点套餐定价灵活，能够满足绝大部分的应用落地与不同的用户科学上网需求。
+youxincloud 使用安全高速 Trojan 协议，是老牌机场旗下新开高速专线机场，低价提供高速IPLC线路节点的科学上网加速器。youxinyun节点套餐定价灵活，能够满足绝大部分的应用落地与不同的用户科学上网需求。
 
 ### 优信云youxincloud特点
 
@@ -32,7 +29,7 @@ youxincloud 使用安全高速 Trojan 协议，是老牌机场旗下新开高速
 
 ## 优信云套餐价格
 
-优信云vpn套餐价格入门款￥15/50GB/月，年付优惠力度更大。
+优信云youxinyun套餐价格入门款￥15/50GB/月，年付优惠力度更大。
 
 <table>
     <thead>
@@ -98,3 +95,6 @@ youxincloud 使用安全高速 Trojan 协议，是老牌机场旗下新开高速
 另外可参考一下网友测速：
 
 [![优信云机场节点测速](youxincloud_20250218_202946.png)](https://xuv.cc/out/youxin)
+
+> 优信云跑路了吗？暂时没有。不过机场总会有跑路风险，为尽可能减少损失，选购套餐可按月支付。
+> 另外没有啥绝对好坏，一线机场也会炸，小机场也可能岁月静好。
