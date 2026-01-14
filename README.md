@@ -2,7 +2,7 @@
 
 永久官网：[优信云.com](https://youxincloud.org/register)
 
-备用地址：[youxincloud.net](https://www.youxincloud.net/#/register?code=LuVhRkz4)
+备用地址：[youxincloud.net](https://www.youxin55.net/#/register?code=LuVhRkz4)
 
 ---
 
