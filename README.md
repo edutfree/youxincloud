@@ -1,16 +1,12 @@
 # 优信云youxincloud官网地址 + youxinyun最新优惠码
 
-永久官网：[优信云.com](https://youxincloud.org/register)
+永久官网：[优信云.com](https://www.youxin66.net/#/register?code=LuVhRkz4)
 
-备用地址：[youxincloud.net](https://www.youxin55.net/#/register?code=LuVhRkz4)
+备用地址：[youxincloud.net](https://www.youxin66.net/#/register?code=LuVhRkz4)
 
----
+## 优信云优惠码
 
-**温馨提示：任何服务均有跑路风险，请自行注意防范！**
-
-**本页面仅分享网络信息，不做推荐，有问题请自行联系服务商处理！**
-
----
+年付 7折优惠码：[618](https://xuv.cc/out/youxin) 
 
 ## 优信云youxincloud介绍
 
@@ -28,10 +24,6 @@ youxincloud 使用安全高速 Trojan 协议，是老牌机场旗下新开高速
     <li>支持 Windows、Mac、Linux、Android、iOS 等全平台加速器客户端；</li>
     <li>站内提供订阅转换，方便不同协议配置，避免订阅信息泄露；</li>
 </ul>
-
-## 优信云优惠码
-
-年付 85折优惠码：[yx85](https://xuv.cc/out/youxin) 
 
 ## 优信云套餐价格
 
