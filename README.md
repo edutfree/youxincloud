@@ -1,12 +1,14 @@
 # 优信云youxincloud官网最新地址
 
-永久官网：[优信云.com](https://www.youxin66.net/#/register?code=LuVhRkz4)
+永久官网：[优信云.com](https://youxinjy.cc/#/register?code=LuVhRkz4)
 
-备用地址：[youxincloud.net](https://www.youxin66.net/#/register?code=LuVhRkz4)
+备用地址：[youxincloud.net](https://youxinjy.cc/#/register?code=LuVhRkz4)
 
 ## 优信云优惠码
 
-年付 7折优惠码：[618](https://xuv.cc/out/youxin) 
+年付 69折优惠码：[yx51666](https://xuv.cc/out/youxin) 
+
+2年付 65折优惠码：[yx51888](https://xuv.cc/out/youxin)
 
 ## 优信云youxincloud介绍
 
