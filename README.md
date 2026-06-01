@@ -1,8 +1,8 @@
 # 优信云youxincloud官网最新地址
 
-永久官网：[优信云.com](https://youxinjy.cc/#/register?code=LuVhRkz4)
+永久官网：[优信云.com](https://youxin618.net/#/register?code=LuVhRkz4)
 
-备用地址：[youxincloud.net](https://youxinjy.cc/#/register?code=LuVhRkz4)
+备用地址：[youxincloud.net](https://youxin618.net/#/register?code=LuVhRkz4)
 
 ## 优信云优惠码
 
